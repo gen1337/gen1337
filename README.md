@@ -2,7 +2,7 @@
 
 ### helo
 
-[![pgp](https://img.shields.io/badge/pgp-0xF83424824B3E4B90-313131?style=flat&labelColor=545454&color=313131)](https://github.com/orhun.gpg) [![views](https://img.shields.io/badge/NEVERLOSE.SS-8A2BE2)](https://gen1337.github.io/projects/nigga.html)
+[![clickme](https://img.shields.io/badge/CLICK%20ME-blue)](https://gen1337.github.io/projects/2.html) [![niggaaa](https://img.shields.io/badge/NEVERLOSE.SS-8A2BE2)](https://gen1337.github.io/projects/nigga.html)
 
 <br>
 
