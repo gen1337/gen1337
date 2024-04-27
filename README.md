@@ -29,8 +29,23 @@
 <img align="left" src="https://i.ytimg.com/vi/ZFQL1J5fMyA/oar2.jpg?sqp=-oaymwEiCNAFENAFSFqQAgHyq4qpAxEIARUAAAAAJQAAyEI9AICiQw==&rs=AOn4CLAoKqEGfjVDfaZmZCfjO9-i6Ymbeg" width="400">                                                                                                                                                                                                                                                                                                                                                                                                                                        
 
 <center>
-
-**SADASFOAJGLDHFLKGKLSDJFLKSADJLKFJAL;SDJF;ASD**
+  
+**Детский доктор сказал:«Ништяк»
+Глеб Матвеич сказал:«Вощще»
+Фрол Михалыч сказал:«Сказал»
+Джон Тамарыч сказал:«Вощще»
+Лев Абрамыч сказал:«Non stop»
+Мы сказали :«No pasaran»
+Клалафуда сказала:«Хой!»
+Кто-то снова сказал:«Вощще»
+Бонифаций сказал:«Каya»
+Дверь сказала:«Закрой меня»
+Кузя Уо сказал:«Открове»
+Я сказал и меня вощще
+Добрый дядя сказал:«Пиджак»
+Бодхисатва сказал:«Узюм»
+Баба Миша сказала:«Ро»
+Я подумал и промолчал.**
 
 </center>
 
