@@ -27,7 +27,7 @@ MY WOWAWEWA GITHUB  |  |  |
 
 <center>
   <audio controls src="/media/cc0-audio/t-rex-roar.mp3"></audio>
-  <a href="/media/cc0-audio/t-rex-roar.mp3"> 
+
 <img align="left" src="https://upload.wikimedia.org/wikipedia/commons/thumb/d/d3/Flag_of_Kazakhstan.svg/200px-Flag_of_Kazakhstan.svg.png" width="400">    
 Казахстан наш народный,
 Лючший в мире страна!
