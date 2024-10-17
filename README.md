@@ -34,7 +34,8 @@ https://github.com/user-attachments/assets/a3ede582-8b15-46d3-b18a-828a097d18e9
 <center>
 
 
-<img align="left" src="https://upload.wikimedia.org/wikipedia/commons/thumb/d/d3/Flag_of_Kazakhstan.svg/200px-Flag_of_Kazakhstan.svg.png" width="400" height ="1234567890">    
+<img align="left" src="https://upload.wikimedia.org/wikipedia/commons/thumb/d/d3/Flag_of_Kazakhstan.svg/200px-Flag_of_Kazakhstan.svg.png" width="400">    
+<br>
 Казахстан наш народный,
 Лючший в мире страна!
 В другой над народ
@@ -49,6 +50,7 @@ https://github.com/user-attachments/assets/a3ede582-8b15-46d3-b18a-828a097d18e9
 Лючший в мире страна!
 В других разных странах
 Проживай пидарас!
+</br>
 
 </center>
 
