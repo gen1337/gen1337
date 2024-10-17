@@ -13,7 +13,7 @@ FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIM
 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌
 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌
 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌
-FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌
+FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌  FIMOZ 👌 FIMOZ 👌
 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌
 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌
 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌
@@ -25,8 +25,12 @@ FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIM
 MY WOWAWEWA GITHUB  |  |  |
                   \/ \/ \/
 
+
+https://github.com/user-attachments/assets/50c37210-8343-4ea7-b2aa-41050463113e
+
+
 <center>
-  <audio controls src="/media/cc0-audio/t-rex-roar.mp3"></audio>
+
 
 <img align="left" src="https://upload.wikimedia.org/wikipedia/commons/thumb/d/d3/Flag_of_Kazakhstan.svg/200px-Flag_of_Kazakhstan.svg.png" width="400">    
 Казахстан наш народный,
