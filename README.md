@@ -1,54 +1,47 @@
 <img align="left" src="https://i.imgur.com/8QouOya.png" width="200">
 
-### helo
+### FIMOZ
 
 [![clickme](https://img.shields.io/badge/CLICK%20ME-blue)](https://gen1337.github.io/projects/2.html) [![niggaaa](https://img.shields.io/badge/NEVERLOSE.SS-8A2BE2)](https://gen1337.github.io/projects/nigga.html)
 
 <br>
 
-█▒ █▒ █████▒ ► Пью
+PENIS : 51 METER
+NAME : PIDOR GRIFFON
 
-█▒ █▒ █▒ ► Курю
+FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌
+FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌
+FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌
+FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌
+FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌
+FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌
+FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌
+FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌
+FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌
+FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌
+FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌
+FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌
 
-████▒ ███▒ ► Ругаюсь матом
-
-█▒ █▒ █▒ ► Делаю глупостей
-
-█▒ █▒ █████▒ ► Правда всё это;)
-
-▄■▀■▄■▀■▄■▀■▄
-
-! ЧуДеСнОгО ДнЯ !
-
-▀■▄■▀■▄■▀■▄■▀
-
-|̳̿В̳̿|Контакте
-
-**PENIS OVER HERRE**:
-
-<img align="left" src="https://i.ytimg.com/vi/ZFQL1J5fMyA/oar2.jpg?sqp=-oaymwEiCNAFENAFSFqQAgHyq4qpAxEIARUAAAAAJQAAyEI9AICiQw==&rs=AOn4CLAoKqEGfjVDfaZmZCfjO9-i6Ymbeg" width="400">                                                                                                                                                                                                                                                                                                                                                                                                                                        
+MY WOWAWEWA GITHUB  |  |  |
+                  \/ \/ \/
 
 <center>
-  
-**Детский доктор сказал:«Ништяк»**
 
-**Глеб Матвеич сказал:«Вощще»**
+<img align="left" src="https://upload.wikimedia.org/wikipedia/commons/thumb/d/d3/Flag_of_Kazakhstan.svg/200px-Flag_of_Kazakhstan.svg.png" width="400">    
+Казахстан наш народный,
+Лючший в мире страна!
+В другой над народ
+Только бабы держат власть!
 
-**Фрол Михалыч сказал:«Сказал»**
+Казахстан первый мест
+По продажам навоза.
+У других в Средней Азии
+Удобренья говно-говном!
 
-**Джон Тамарыч сказал:«Вощще»**
-
-**Лев Абрамыч сказал:«Non stop»**
-
-**Мы сказали :«No pasaran»**
-
-**Клалафуда сказала:«Хой!»**
-
-**Кто-то снова сказал:«Вощще»**
-
-**Бонифаций сказал:«Каya»**
-
-**Дверь сказала:«Закрой меня»**
+Казахстан наш родной —
+Лючший в мире страна!
+В других разных странах
+Проживай пидарас!
 
 </center>
 
@@ -57,3 +50,6 @@
 
 
 **~**
+
+
+
