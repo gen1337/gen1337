@@ -26,8 +26,6 @@ MY WOWAWEWA GITHUB  |  |  |
                   \/ \/ \/
 
 
-https://github.com/user-attachments/assets/50c37210-8343-4ea7-b2aa-41050463113e
-
 
 <center>
 
