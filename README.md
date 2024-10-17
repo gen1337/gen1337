@@ -8,6 +8,7 @@
 
 PENIS : 51 METER
 NAME : PIDOR GRIFFON
+DREAM : Я МЕЧТАЮ ОБОСРАТЬ ФИЛИАЛ БАНКА УРАЛ СИБ
 
 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌
 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌
@@ -21,6 +22,8 @@ FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIM
 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌
 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌
 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌 FIMOZ 👌
+
+Твой папа случайно не Николай Александрович Цветков? А то почему моя мечта обосрать твой филиал?
 
 MY WOWAWEWA GITHUB  |  |  |
                   \/ \/ \/
