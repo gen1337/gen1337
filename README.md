@@ -26,7 +26,7 @@ MY WOWAWEWA GITHUB  |  |  |
                   \/ \/ \/
 
 <center>
-
+[Link text](https://gabalpha.github.io/read-audio/?p=https://archive.org/serve/TimeTraxMD/01.%20Music%2000.mp3)
 <img align="left" src="https://upload.wikimedia.org/wikipedia/commons/thumb/d/d3/Flag_of_Kazakhstan.svg/200px-Flag_of_Kazakhstan.svg.png" width="400">    
 Казахстан наш народный,
 Лючший в мире страна!
